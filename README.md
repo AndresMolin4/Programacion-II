@@ -1,0 +1,6 @@
+![5](https://github.com/user-attachments/assets/1f9103ca-7968-4107-bde9-e05475f58112)
+![4](https://github.com/user-attachments/assets/7c16b7ed-6771-4249-b9b0-df24587b9ca6)
+![3](https://github.com/user-attachments/assets/b8d43cde-7f66-407a-bed6-9e5dfb418b0b)
+![2](https://github.com/user-attachments/assets/28ac7825-6904-4991-b938-7e41065b145f)
+![PROBLEMA 7 CODEABBY](https://github.com/user-attachments/assets/46b8e85f-3711-449a-8fdf-77ff5ff5e85c)
+![1](https://github.com/user-attachments/assets/4357c394-36da-41dc-88ee-505d782a922b)
