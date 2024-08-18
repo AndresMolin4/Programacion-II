@@ -4,3 +4,4 @@
 ![2](https://github.com/user-attachments/assets/28ac7825-6904-4991-b938-7e41065b145f)
 ![PROBLEMA 7 CODEABBY](https://github.com/user-attachments/assets/46b8e85f-3711-449a-8fdf-77ff5ff5e85c)
 ![1](https://github.com/user-attachments/assets/4357c394-36da-41dc-88ee-505d782a922b)
+![6](https://github.com/user-attachments/assets/fb20cc8d-3e51-4f0f-b145-c0de812b8f8b)
